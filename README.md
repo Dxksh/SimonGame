@@ -8,8 +8,7 @@ Demonstration Video:
 
 
 
-https://github.com/Dxksh/SimonGame/assets/87981776/60e80b84-4a75-43b8-84d4-08dfae9963c6
-
+https://github.com/Dxksh/SimonGame/assets/87981776/a25d54b3-cbb6-4093-8e50-b11e79d68cee
 
 
 
